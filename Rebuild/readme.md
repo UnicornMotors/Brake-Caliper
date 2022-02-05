@@ -10,5 +10,7 @@
 # Favorite:
 [How to Rebuild Brake Calipers](https://youtu.be/8_6WevdusdA)
 
+[How To Rebuild a Front Brake Caliper -EricTheCarGuy](https://youtu.be/I4FzXGrSrmU)
+
 # Honda
 [Honda / Acura rear caliper rebuild](https://youtu.be/6Q2F2tbquY4)
