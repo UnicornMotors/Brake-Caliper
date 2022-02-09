@@ -7,6 +7,8 @@
 
 [Hack To Disassemble Brake Caliper Pistons](https://youtu.be/caH4S-6cXSQ)
 
+[2003-08 CTS Brake Caliper Rebuild Part 1 Caliper & Piston Removal](https://youtu.be/MoiZX6qYXGQ)
+
 # Favorite:
 [How to Rebuild Brake Calipers](https://youtu.be/8_6WevdusdA)
 
